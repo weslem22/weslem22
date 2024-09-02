@@ -1,4 +1,4 @@
-##### opa td crt? boas vindas ao meu perfil 🫀
+## opa td crt? boas vindas ao meu perfil 🚹
  meu nome é weslem 👨‍🦱
 
  - estou estudando no alura
