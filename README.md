@@ -6,3 +6,11 @@
  - estou desenvolvendo a linguagem javascript
 
  - Utilizo esse espaço para minha organização e compartilhamento dos meus progetos desenvolvidos 🏃
+
+## vocẽ pode entrar em contato comigo ..men
+
+# weslem.somariva@escola.pr.gov.br
+
+-@weslemsomarivaa
+
+:
