@@ -14,4 +14,3 @@
 -@weslemsomarivaa
 
 ![](https://media.tenor.com/MCBkr6dWLkUAAAAM/corinthians-rodrigo-garro.gif)
-![](https://media.tenor.com/GeSUahT9vNMAAAAM/yuri-alberto-corinthians.gif)
